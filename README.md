@@ -1,8 +1,4 @@
 <div align="center">
-
-<text> <strong> WASSUP CHADS! 👋
-
-<div align="center">
   <img src="https://media.tenor.com/2uzVnVdFaiIAAAAd/newjeans-get-up-1st-ep.gif">
 
 #  😎 SHASHA2099 😎
